@@ -51,10 +51,14 @@ Descreve o processo/funcionamento
 
 Alex Guimarães Ribeiro 
 Rgm:38099730
+
 Brenda Oliveira Cavalcanti 
 38690748
+
 Emerson da Silveira Dutra Junior 
 Rgm:38765306
+
 Gabriel Henrique Fernandes Lauria  
 RGm: 38911108
+
 Jean Carvalho Paloski 38766655
